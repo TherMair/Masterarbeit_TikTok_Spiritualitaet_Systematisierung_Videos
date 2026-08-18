@@ -1,0 +1,1 @@
+In der Excel-Tabelle sind die TikTok-Beiträge die für die qualitative Inhaltsanalyse verwendet wurden, angeführt und beschrieben. Zusätzlich werden die Beiträge anhand von verschiedenen Kategorien analysiert.
